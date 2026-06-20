@@ -1,0 +1,1 @@
+# Subtitle-Studio-1.5.11-for-Mac
